@@ -1,3 +1,3 @@
 # Project MuN
-## Emergence of cooperation 
-Understanding reasons behind human cooperation is puzzling.
+## An Institutional Theory for Evolution of Universal Cooperation
+
