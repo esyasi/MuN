@@ -1,3 +1,3 @@
 # Project MuN
-## An Institutional Theory for Evolution of Universal Cooperation
+## An Institutional Approach to Understand the Stability of Cooperation
 
